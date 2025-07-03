@@ -1,0 +1,2 @@
+# hsk2to34
+LCN HSK2 TO 34 H21334
